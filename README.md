@@ -13,6 +13,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns:
 -->
 
-- 📫 How to reach me: [In Telegram!](t.me/afkrere)
+- 📫 How to reach me: [In Telegram!](https://t.me/afkrere)
 - ⚡ Fun fact: My username it's a nickname I had as a child ☺️
 
